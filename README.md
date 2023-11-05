@@ -1,1 +1,1 @@
-# divyakamakshi.github.io
+# divya.github.io
